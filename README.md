@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Vic a product designer, lover of photography and technology, based in Uruguay. 
+- 👋 Hi, I’m Vic a product designer, lover of photography and technologyy. 
 Through my work, with a creative attitude to solve problems, curiosity, continuous learning, teamwork, and more than five years 
 of experience in the design of products and services, I have helped companies to better communicate their values, improve the user 
 experience linked to its products and services, through the use of inclusive user-centered design processes.
